@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @Nick216-byte
-- 👀 I’m interested in various aspects of real life nothing compromising to my pocket or health I'm located in London at the moment but only got stuck here not my preferred destination you can contact me on 07464847277 I'm looking at funding a chemist organisation 
+- 👀 I’m interested in various aspects of real life nothing compromising to my pocket or health I'm located in London at the moment but only got stuck here not my preferred destination you can contact me on 07342880495.I'm looking at funding a chemist organisation 
